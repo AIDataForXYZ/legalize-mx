@@ -2875,34 +2875,3 @@ Ciudad de México, a 20 de marzo de 2025.- Sen. Imelda Castro Castro, Vicepresid
 
 En cumplimiento de lo dispuesto por la fracción I del Artículo 89 de la Constitución Política de los Estados Unidos Mexicanos, y para su debida publicación y observancia, expido el presente Decreto en la Residencia del Poder Ejecutivo Federal, en la Ciudad de México, a 20 de marzo de 2025.- Claudia Sheinbaum Pardo, Presidenta de los Estados Unidos Mexicanos.- Rúbrica.- Lcda. Rosa Icela Rodríguez Velázquez, Secretaria de Gobernación.- Rúbrica.
 
-hwt5aJ
-
-hwt5aJ
-
-hnì5aJhf_hf_aJ
-
-hwt5aJ
-
-hwt5aJhf_hf_aJ
-
-hwt5aJ
-
-hwt5aJ
-
-hwt5aJhf_hf_aJ
-
-h<¶5aJhf_hf_aJhf_hf_5aJ
-
-hhhÇhÈhËhÌh
-
-h<¶5aJhf_hf_5aJX_]^^Ç^ý^é_``.`H`i`À`zaÄa6ccMdKe'fËfg
-
-h<¶5aJhf_hf_5aJVó®¯V¯¯D°ò°j²*³w³´¶´Oµïµ,¶
-
-h<¶5aJRÕû üßüzý'þþ»þÈÿLÉ
-
-h<¶5aJUÝI
-
-h<¶5aJU/ú/>0¨1Õ2V34m4 55ø5ò6
-
-efgªÑê«s$

@@ -11970,19 +11970,3 @@ Décimo Segundo.- Servicios de Salud del Instituto Mexicano del Seguro Social pa
 Formalizada la modificación al contrato dentro de los treinta días hábiles siguientes, el Comité Técnico deberá aprobar las reglas de operación del Fondo de Salud para el Bienestar, conforme a lo previsto en el presente Decreto.
 
 En cumplimiento de lo dispuesto por la fracción I del Artículo 89 de la Constitución Política de los Estados Unidos Mexicanos, y para su debida publicación y observancia, expido el presente Decreto en la Residencia del Poder Ejecutivo Federal, en la Ciudad de México, a 13 de enero de 2026.- Claudia Sheinbaum Pardo, Presidenta de los Estados Unidos Mexicanos.- Rúbrica.- Lcda. Rosa Icela Rodríguez Velázquez, Secretaria de Gobernación.- Rúbrica.
-
-hrc5CJ
-
-IJÍÎ
-
-IJOÍÎÒ
-
-®\s}§±²³¸åÎ··jQj>,"ha
-
-ÉGÝGWImIwIxIJ0J:JEJJJlJmJnJéÔ¸¸zcL2L2&hô
-
-Xõeopq}ú3=>?K
-
-hrcCJ\
-
-hrcCJ\

@@ -6737,4 +6737,4 @@ Atentamente.
 
 Ciudad de México, a 17 de diciembre de 2025.- En suplencia por ausencia del Jefe del Servicio de Administración Tributaria, con fundamento en el artículo 4, primer párrafo del Reglamento Interior del Servicio de Administración Tributaria, firma el Administrador General Jurídico, Lic. Ricardo Carrasco Varona.- Rúbrica.
 
-JklTvwë
+

@@ -591,7 +591,3 @@ Artículo Décimo Segundo.- Se reforma el artículo 5, fracción V, de la Ley Fe
 Ciudad de México, a 13 de febrero de 2024.- Dip. Marcela Guerra Castillo, Presidenta.- Sen. Ana Lilia Rivera Rivera, Presidenta.- Dip. Pedro Vázquez González, Secretario.- Sen. Verónica Noemí Camino Farjat, Secretaria.- Rúbricas."
 
 En cumplimiento de lo dispuesto por la fracción I del Artículo 89 de la Constitución Política de los Estados Unidos Mexicanos, y para su debida publicación y observancia, expido el presente Decreto en la Residencia del Poder Ejecutivo Federal, en la Ciudad de México, a 26 de marzo de 2024.- Andrés Manuel López Obrador.- Rúbrica.- La Secretaria de Gobernación, Luisa María Alcalde Luján.- Rúbrica.
-
-Ð#g$g(g)gÁgãgägçgègh©h«hµh¶h·hÃhjjejgj5k9kékîkSlVlîlðl!m$mðÞðÉ±ðÞðÉnhahahahahahahahP h
-
-wx³Íáþ0Daz{Ãä(34ÄÅ

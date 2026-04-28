@@ -13239,12 +13239,3 @@ V.	Artículo 1390 Bis 33: $3,113.63 (tres mil ciento trece pesos 63/100 M.N.) a 
 
 Ciudad de México, a 30 de enero de 2026.- El Secretario de Economía, Marcelo Luis Ebrard Casaubon.- Rúbrica.
 
-uuu$u%u&u2u5uBuKuSuXubucudupusuuuuu u¡u¢u®u±u¾uÇuÏuÔuÞußuàuìuïuüuv
-
-```8`<```ø`þ`ÂaÇambqbrcwc
-
-ee5fAfDfafef f¥fgg²g·gMhQh¹h¾h¡i§i~jjIkNkOlSlõlmm!m%mmm
-
-`7`8```÷`ø`ÁaÂalbmbqcrcd
-
-()°¹ÂÇÑÒÓàã­º½,9<5BEäñôXehÃÐÓ

@@ -9627,15 +9627,3 @@ Ciudad de México, a 18 de febrero de 2026.- Sen. Laura Itzel Castillo Juárez, 
 
 En cumplimiento de lo dispuesto por la fracción I del Artículo 89 de la Constitución Política de los Estados Unidos Mexicanos, y para su debida publicación y observancia, expido el presente Decreto en la Residencia del Poder Ejecutivo Federal, en la Ciudad de México, a 12 de marzo de 2026.- Claudia Sheinbaum Pardo, Presidenta de los Estados Unidos Mexicanos.- Rúbrica.- Lcda. Rosa Icela Rodríguez Velázquez, Secretaria de Gobernación.- Rúbrica.
 
-| HH=HAHBHuHHHHHHHäHûHII | I |
-| --- | --- |
-
-B%B/B0BHBRBSBTBeBëCìCEEF
-
-ÒÛåêôõö	s|óÛÆ³Æs`Ró``óRDRó``h´8h)S
-
-5CJ\aJh´8h
-
-5CJ\aJh´8h
-
-CJ\aJh´8h

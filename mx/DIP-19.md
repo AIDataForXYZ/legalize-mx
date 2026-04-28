@@ -41,4 +41,3 @@ México, D.F., a 21 de enero de 1994.- Dip. Juan Antonio Nemi Dib, Presidente.- 
 
 En cumplimiento de lo dispuesto por la fracción I del Artículo 89 de la Constitución Política de los Estados Unidos Mexicanos, y para su debida publicación y observancia, expido el presente Decreto en la residencia del Poder Ejecutivo Federal, en la Ciudad de México, Distrito Federal, a los veintiún días del mes de enero de mil novecientos noventa y cuatro.- Carlos Salinas de Gortari.- Rúbrica.-  El Secretario de Gobernación, Jorge Carpizo.- Rúbrica.
 
-pqráúÝ	í	î	ü	$¡

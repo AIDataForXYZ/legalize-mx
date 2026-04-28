@@ -2107,6 +2107,3 @@ Ciudad de México, a 1 de julio de 2025.- Dip. Sergio Carlos Gutiérrez Luna, Pr
 
 En cumplimiento de lo dispuesto por la fracción I del Artículo 89 de la Constitución Política de los Estados Unidos Mexicanos, y para su debida publicación y observancia, expido el presente Decreto en la Residencia del Poder Ejecutivo Federal, en la Ciudad de México, a 15 de julio de 2025.- Claudia Sheinbaum Pardo, Presidenta de los Estados Unidos Mexicanos.- Rúbrica.- Lcda. Rosa Icela Rodríguez Velázquez, Secretaria de Gobernación.- Rúbrica.
 
-)**+7|}üõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíèõüíõüíüíõèõäõüõüíõüíüõüíüõüíühÎu	h*3O5hwCh*3O5hwCh*3Oh*3OZÝ
-
-ÉÊÖ2356{|õöøùjkno3489ÕÖÙÚ]^üõüíüõüíèíèíõüõüõüíèíõüíèõüíüõüíèõüíüõüíèõüíüõüíèõüõüíõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõüíüõü	h*3O5hwCh*3O5hwCh*3Oh*3O\/

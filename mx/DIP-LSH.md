@@ -2283,11 +2283,3 @@ Ciudad de México, a 12 de marzo de 2025.- Sen. Gerardo Fernández Noroña, Pres
 
 En cumplimiento de lo dispuesto por la fracción I del Artículo 89 de la Constitución Política de los Estados Unidos Mexicanos, y para su debida publicación y observancia, expido el presente Decreto en la Residencia del Poder Ejecutivo Federal, en la Ciudad de México, a 18 de marzo de 2025.- Claudia Sheinbaum Pardo, Presidenta de los Estados Unidos Mexicanos.- Rúbrica.- Lcda. Rosa Icela Rodríguez Velázquez, Secretaria de Gobernación.- Rúbrica.
 
-7CjlmÊÍÎ@DEÆÈÉ÷êÚÍÚ¾°¥°wngwnwnwnwanwZnwZnwZnwZ
-
-/02¹º¼ÑÒÔFGI´µ·
-
-| h | 4T5aJhúENhA=aJhúENhA=5aJS | ñÊT |
-| --- | --- | --- |
-
-hyOh5aJhúENhA=5aJhúENhA=aJ
